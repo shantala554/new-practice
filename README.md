@@ -3,6 +3,3 @@ Detailsi
 
 hi
  how r u
- 
-
-h
