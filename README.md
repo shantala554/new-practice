@@ -1,2 +1,8 @@
 # new-practice
-Details
+Detailsi 
+
+hi
+ how r u
+ 
+
+h
